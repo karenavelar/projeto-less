@@ -12,4 +12,4 @@ Karen Avelar
 
 ## Status
 
-Aguardando novas atualizações
+Finalizado.
